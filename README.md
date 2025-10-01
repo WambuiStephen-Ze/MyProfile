@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **stephengathwe98@gmail.com**
 
-- ⚡ Fun fact **I think am a ready to conquer empero**
+- ⚡ Fun fact **I think am a ready to conquer empires**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
